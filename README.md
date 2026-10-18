@@ -19,7 +19,10 @@ te amo muchisimo mi niña hermosa, mas de lo que mis palabras pueden explicar y 
 🖤❤️❤️❤️❤️❤️❤️🖤
 🖤❤️❤️❤️❤️❤️❤️🖤
 🖤🖤❤️❤️❤️❤️🖤🖤
+
 🖤🖤🖤❤️❤️🖤🖤🖤
 🖤🖤🖤🖤❤️🖤🖤🖤
 
+
 ### 📸 Mi Foto:
+<img width="843" height="1600" alt="223" src="https://github.com/user-attachments/assets/9dc0d293-10d7-425d-80d4-daa6d1aaa38c" />
